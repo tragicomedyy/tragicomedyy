@@ -1,4 +1,4 @@
-![Image](https://github.com/user-attachments/assets/e7946267-9395-487d-91bf-2fcdee35b741)
+5![Image](https://github.com/user-attachments/assets/e7946267-9395-487d-91bf-2fcdee35b741)
 
  ┊ ᵢ ₖₙₒ𝔀 ᵢ'ₘ ₙₒ ₛ𝔀ₑₑₜ ₚᵣᵢₙ𝓬ₑ ₒᵳ ₗₒᵥₑ, ₜₕₒₛₑ ₙᵢ𝑔ₕₜₛ ₜₕₐₜ 𝔀ₑ 𝑔ₒₜ 𝓭ᵣᵤₙₖ. 𓏵
 
@@ -29,7 +29,7 @@ Dαɳԃყ'ʂ ɯσɾʅԃ, Dσʅʅყ'ʂ ϝαƈƚσɾყ/ԃϝ, ƚԋҽ Mαɳԃҽʅ
 
 𝕾𝖚𝖕𝖊𝖗 𝖊𝖝𝖙𝖗𝖆: 𐔌՞. .՞𐦯
 
-ᴵ ᴰᴼᴺᵀ ᵐⁱⁿᵈ ᵐᵘᶜʰ ⁱᶠ ʸᵒᵘʳ ᵃ ᵈᵃʳᵏˢʰⁱᵖᵖᵉʳ ᵒʳ ᵃⁿʸᵗʰⁱⁿᵍ. ᴮᵘᵗ ᵒⁿᶜᵉ ʸᵒᵘ ᵍᵒᵗ ⁱⁿˢⁱᵈᵉ ᵐʸ ⁱⁿᵗᵉʳᵉˢᵗˢ ᵃⁿᵈ ˢᵗᵃʳᵗ ᵘˢⁱⁿᵍ ᵐʸ ᶠᵃᵛᵒᵘʳⁱᵗᵉ ᶜʰᵃʳᵃᶜᵗᵉʳˢ ᵗᵒ ᵃⁿⁿᵒʸ ᵐᵉ, ᴵ'ˡˡ ⁿᵒᵗ ʰᵉˢⁱᵗᵃᵗᵉ ᵗᵒ ᵇˡᵒᶜᵏ ᵃⁿᵈ ʰⁱᵈᵉ ʸᵒᵘ. ᴾˡᵉᵃˢᵉ ᵏⁿᵒʷ ᵇᵒᵘⁿᵈᵃʳⁱᵉˢ <³ (talking about darkshippers, proshippers, y'all should iwc ok? 👀👀)
+ᴵ ᴰᴼᴺᵀ ᵐⁱⁿᵈ ᵐᵘᶜʰ ⁱᶠ ʸᵒᵘʳ ᵃ ᵈᵃʳᵏˢʰⁱᵖᵖᵉʳ ᵒʳ ᵃⁿʸᵗʰⁱⁿᵍ. ᴮᵘᵗ ᵒⁿᶜᵉ ʸᵒᵘ ᵍᵒᵗ ⁱⁿˢⁱᵈᵉ ᵐʸ ⁱⁿᵗᵉʳᵉˢᵗˢ ᵃⁿᵈ ˢᵗᵃʳᵗ ᵘˢⁱⁿᵍ ᵐʸ ᶠᵃᵛᵒᵘʳⁱᵗᵉ ᶜʰᵃʳᵃᶜᵗᵉʳˢ ᵗᵒ ᵃⁿⁿᵒʸ ᵐᵉ, ᴵ'ˡˡ ⁿᵒᵗ ʰᵉˢⁱᵗᵃᵗᵉ ᵗᵒ ᵇˡᵒᶜᵏ ᵃⁿᵈ ʰⁱᵈᵉ ʸᵒᵘ. ᴾˡᵉᵃˢᵉ ᵏⁿᵒʷ ᵇᵒᵘⁿᵈᵃʳⁱᵉˢ <³ (talking about darkshippers, proshippers, y'all should iwc or idm, int freely. )
 
 
 ![Image](https://github.com/user-attachments/assets/603b6604-4fb7-4367-a3fd-c403fec54d17)
