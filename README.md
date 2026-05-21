@@ -11,13 +11,13 @@
 
 
 
- 
-ㅤㅤㅤ   ➳ ㅤ ㅤ name    ｡       name 
-ㅤㅤ ㅤ﹒ ‎  prn ‎  prn   ‎ 𓎟𓎟   ‎ flg    ⟢
-ㅤㅤ　⤹     .cc  ⠀/ ⠀link⠀   ⠀˳ᴗ ᴗ)
+      
+ㅤㅤ.                    ➳ ㅤ ㅤ name    ｡       name 
+ㅤㅤ ㅤ﹒ ‎                   prn ‎  prn   ‎ 𓎟𓎟   ‎ flg    ⟢
+                    ㅤㅤ　⤹     .cc  ⠀/ ⠀link⠀   ⠀˳ᴗ ᴗ)
  
 
-JOIN US! discord.gg/darkgirly
+
 
 
 
