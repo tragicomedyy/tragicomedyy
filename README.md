@@ -17,4 +17,4 @@
 
 </div>
 
-![Image](https://github.com/user-attachments/assets/d3ad3cb8-3bb1-4c5e-a80f-740066ff3ec8)
+![Image](https://github.com/user-attachments/assets/7a5b61fd-b571-4a21-b06b-e0e1e57d9001)
