@@ -32,5 +32,13 @@ Aᥒძ 𝗂'𝗆 ᥲᥣs᥆ ᥎ᥱrᥡ іᥒsᥱᥒsі𝗍і᥎ᥱ.
 
 </div>
 
+<div align="center">
+
+ᴄᴏᴍғ ᴄʜᴀʀᴀᴄᴛᴇʀs! ᨳଓ .
+
+ᑲᥲᥒһᥲmmᥱr • 𝗍ᥴ᥆ • ძ᥆ᥴ𝗍᥆r (𝖿r᥆m 𝗍𝖿ᥴ) • g᥆ᥙrძᥡ • s⍴r᥆ᥙ𝗍 • sіᥣᥱᥒ𝗍 sᥲᥣ𝗍 • gᥲᑲrіᥱᥣ (𝗍mᥴ) &lt;3
+
+</div>
+
 ![Image](https://github.com/user-attachments/assets/7a5b61fd-b571-4a21-b06b-e0e1e57d9001)
 
