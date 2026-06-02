@@ -10,3 +10,12 @@
 </div>
 
 ![Image](https://github.com/user-attachments/assets/7a5b61fd-b571-4a21-b06b-e0e1e57d9001)
+<div align="center">
+
+𝒇𝒂𝒏𝒅𝒐𝒎𝒔:<br>
+
+ძᥲᥒძᥡ's ᥕ᥆rᥣძ • 𝗍һᥱ 𝕸ᥲᥒძᥱᥣᥲ ᥴᥲ𝗍ᥲᥣ᥆gᥙᥱ • ᥱ⍴іᥴ 𝗍һᥱ mᥙsіᥴᥲᥣ<br>
+
+ᥴ᥆᥆kіᥱ rᥙᥒ kіᥒgძ᥆m • α᥎α/α᥎𝐌 • 𝗍𝖿ᥴ ᥣ᥆ᥕk • ᥱ𝗍ᥴ ᥱ𝗍ᥴ !!
+
+</div>
