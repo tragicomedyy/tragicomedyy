@@ -38,6 +38,13 @@ Aᥒძ 𝗂'𝗆 ᥲᥣs᥆ ᥎ᥱrᥡ іᥒsᥱᥒsі𝗍і᥎ᥱ.
 ᴄᴏᴍғ ᴄʜᴀʀᴀᴄᴛᴇʀs! ᨳଓ .
 
 ᑲᥲᥒһᥲmmᥱr • 𝗍ᥴ᥆ • ძ᥆ᥴ𝗍᥆r (𝖿r᥆m 𝗍𝖿ᥴ) • g᥆ᥙrძᥡ • s⍴r᥆ᥙ𝗍 • sіᥣᥱᥒ𝗍 sᥲᥣ𝗍 • gᥲᑲrіᥱᥣ (𝗍mᥴ) &lt;3
+Q
+</div>
+
+
+<div align="center">
+
+Still unfinished because I'm lazy af
 
 </div>
 
