@@ -1,4 +1,4 @@
-![Image](https://github.com/user-attachments/assets/f79f42c4-2439-4124-9960-a3cf23a21088)
+![Image](https://github.com/user-attachments/assets/cdba7ba9-163d-44cf-8cac-c33c2c8bca1e)
 <div align="center">
 
 ➳ 𝔵𝔞𝔳𝔦 ｡ ꜱᴏʀᴀ
@@ -11,7 +11,3 @@
 
 
 <div align="center">
-
-
-![Image](https://github.com/user-attachments/assets/7a5b61fd-b571-4a21-b06b-e0e1e57d9001)
-
