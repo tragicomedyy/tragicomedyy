@@ -1,4 +1,13 @@
+
+
+
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=Tragicomedyy&label=candies+received&color=orange" alt="Candies Received" />
+</p>
+
+
 !![Image](https://github.com/user-attachments/assets/51d76b64-94b4-4f86-8e60-ec4aeaef929b)
+
 <div align="center">
 
 <pre>
