@@ -2,7 +2,7 @@
 
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=Tragicomedyy&label=candies+received&color=orange" alt="Candies Received" />
+  <img src="https://img.shields.io/badge/candies%20received-3-F39C12?style=flat&labelColor=FAD7A0" alt="Candies Received" />
 </p>
 
 
