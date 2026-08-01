@@ -10,7 +10,7 @@
 
 <div align="center">
 
-<pre>
+
 
 ⠀_ _
 
@@ -20,6 +20,6 @@
 
 ˙　　˳　　⁺ fandom dniuid/uf.
 
-</pre>
+
 
 </div>
