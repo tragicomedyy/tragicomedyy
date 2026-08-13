@@ -5,7 +5,11 @@
   
    ![](https://komarev.com/ghpvc/?username=tragicomedyy&label=candies%20received&color=B82A2D&labelColor=FCF3DC)
 
-!![Image](https://github.com/user-attachments/assets/aed3d7e3-92d2-4893-bba4-2eaee1500bed)
+![Image](https://github.com/user-attachments/assets/aed3d7e3-92d2-4893-bba4-2eaee1500bed)
+<div align="center">
+  
+![Image](https://github.com/user-attachments/assets/29613d85-741a-4533-8ecb-e16438247901)
+
 
 <div align="center">
 ⠀_ _
