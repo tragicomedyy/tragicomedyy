@@ -1,10 +1,9 @@
 
 
 
-<p align="center">
-  ![](https://komarev.com/ghpvc/?username=tragicomedyy&label=candies%20received&color=B82A2D&labelColor=FCF3DC)
-</p>
-
+<p align="center"
+  
+   ![](https://komarev.com/ghpvc/?username=tragicomedyy&label=candies%20received&color=B82A2D&labelColor=FCF3DC)
 
 !![Image](https://github.com/user-attachments/assets/51d76b64-94b4-4f86-8e60-ec4aeaef929b)
 
