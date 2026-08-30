@@ -5,7 +5,8 @@
   
    ![](https://komarev.com/ghpvc/?username=tragicomedyy&label=candies%20received&color=B82A2D&labelColor=FCF3DC)
 
-![Image](https://github.com/user-attachments/assets/aed3d7e3-92d2-4893-bba4-2eaee1500bed)
+![Image](https://github.com/user-attachments/assets/e4205edf-22a1-44a5-86b2-11049b8ebbc1)
+hello guys, y'all probably came from my "check git" pony, but well. I'm here to tell you that this specific gourdy copied my pony and claiming it as theirs. at first, they hid me then after lik 5-7 days i heard one of my friends call me because they spotted a super similar pony to mine. here's my ACTUAL gourdy (im the one with the bell)
 <div align="center">
 
 ![Typing SVG](https://readme-typing-svg.demolab.com/?font=Fira+Code&size=38&duration=5000&pause=300&color=87182E&center=true&vCenter=true&repeat=true&width=1000&lines=A+Veil+Of+Finely+Calibrated+Lies!;Bait;and+SWITCH.;One+in+all%2C+full+of+shit.)
@@ -18,7 +19,6 @@
 ⠀　⠀   ₚₐ𝔀ₙ , ₘᵢₘᵢ , 𝑔ₒᵤᵣ𝓭ᵧ   ⋮   ₜₕₑᵧ/ₜₕₑₘ ₒᵣ ₐₙᵧ .
 
 𐙚　　𝓬₊ₕ ᵢₛ ₕₑₐᵥᵢₗᵧ ₑₙ𝓬ₒᵤᵣₐ𝑔ₑ𝓭 ! : ᵢₙₜ ᵳᵣₑₑₗᵧ, ᵤₙₗₑₛₛ ₙₐₘₑ ₛₐᵧₛ ₒₜₕₑᵣ𝔀ᵢₛₑ.
-
 ˙　　˳　　⁺ .
 
 
