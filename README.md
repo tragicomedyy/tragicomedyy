@@ -10,7 +10,7 @@ hello guys, y'all probably came from my "check git" pony, but well. I'm here to 
 
 
 ![Image](https://github.com/user-attachments/assets/0817e88f-49bb-4a0b-a6b1-dd031bac961f)
-as you can see, our gourdy are very similar. except they only changed the design like putting some glasses and deer horns (?) they also fake kin gourdy from what i heard. this post is meant to warn others about this stupid copycat running around. they can be seen near spawn dw area and always has that pony. they also claimed that it was their sona and they didn't copy anyone which pisses me off. and again, if anyone is friends with this person PLEASE be careful around them, and if your reading this.. shame on you lmao 
+as you can see, our gourdy are very similar. except they only changed the design like putting some glasses and deer horns (?) they also fake kin gourdy from what i heard. this post is meant to warn others about this stupid copycat running around. they can be seen near spawn dw area and always has that pony. they also claimed that it was their sona and they didn't copy anyone which pisses me off. and again, if anyone is friends with this person PLEASE be careful around them, and if your reading this.. shame on you lmao (Again, this post was created to spread awareness, please don't go and harass this person! )  
 
 <div align="center">
 
