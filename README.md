@@ -3,7 +3,7 @@
 
 <p align="center"
   
-   ![](https://komarev.com/ghpvc/?username=tragicomedyy&label=candies%20received&color=B82A2D&labelColor=FCF3DC)
+   ![](https://komarev.com/ghpvc/?username=tragicomedyy&label=candies%20received&color=78595D&labelColor=78595D)
 
 ![Image](https://github.com/user-attachments/assets/e4205edf-22a1-44a5-86b2-11049b8ebbc1)
 hello guys, y'all probably came from my "check git" pony, but well. I'm here to tell you that this specific gourdy copied my pony and claiming it as theirs. at first, they hid me then after lik 5-7 days i heard one of my friends call me because they spotted a super similar pony to mine. here's my ACTUAL gourdy (im the one with the bell)
