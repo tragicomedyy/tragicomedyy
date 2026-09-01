@@ -12,8 +12,7 @@ $$\textcolor{#D8A9B8}{c+h}\ \textcolor{#C9B0C2}{hvy}\ \textcolor{#B9B8CC}{enc}\ 
 
 <div align="center">
 
-![Typing SVG](https://readme-typing-svg.demolab.com/?font=Fira+Code&size=38&duration=5000&pause=300&color=87182E&center=true&vCenter=true&repeat=true&width=1000&lines=A+Veil+Of+Finely+Calibrated+Lies!;Bait;and+SWITCH.;One+in+all%2C+full+of+shit.)
-  
+
 ![Image](https://github.com/user-attachments/assets/29613d85-741a-4533-8ecb-e16438247901)
 ![Image](https://github.com/user-attachments/assets/7acf8df6-0f76-460b-bcca-ec4d99a75eab)
 <div align="center">
