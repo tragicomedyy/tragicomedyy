@@ -5,12 +5,8 @@
   
    ![](https://komarev.com/ghpvc/?username=tragicomedyy&label=candies%20received&color=78595D&labelColor=78595D)
 
-![Image](https://github.com/user-attachments/assets/e4205edf-22a1-44a5-86b2-11049b8ebbc1)
-hello guys, y'all probably came from my "check git" pony, but well. I'm here to tell you that this specific gourdy copied my pony and claiming it as theirs. at first, they hid me then after lik 5-7 days i heard one of my friends call me because they spotted a super similar pony to mine. here's my ACTUAL gourdy (im the one with the bell)
-
-
-![Image](https://github.com/user-attachments/assets/0817e88f-49bb-4a0b-a6b1-dd031bac961f)
-as you can see, our gourdy are very similar. except they only changed the design like putting some glasses and deer horns (?) they also fake kin gourdy from what i heard. this post is meant to warn others about this stupid copycat running around. they can be seen near spawn dw area and always has that pony. they also claimed that it was their sona and they didn't copy anyone which pisses me off. and again, if anyone is friends with this person PLEASE be careful around them, and if your reading this.. shame on you lmao (Again, this post was created to spread awareness, please don't go and harass this person! )  
+$$\textcolor{#D0A9BA}{pawn\ /\ gourdy}\ :\ \textcolor{#C0B5C9}{she/him}\ \textcolor{#A8C1D2}{any\ pronouns}\ .$$
+$$\textcolor{#D8A9B8}{c+h}\ \textcolor{#C9B0C2}{hvy}\ \textcolor{#B9B8CC}{enc}\ ,\ \textcolor{#A9C0D2}{int}\ \textcolor{#98C8D8}{freely}\ \textcolor{#8FB8CC}{unless}\ \textcolor{#87AEC4}{name}\ \textcolor{#7FA8BE}{says}\ \textcolor{#78A3BA}{otherwise}\ .$$
 
 <div align="center">
 
