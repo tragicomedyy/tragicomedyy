@@ -5,6 +5,8 @@
   
    ![](https://komarev.com/ghpvc/?username=tragicomedyy&label=candies%20received&color=78595D&labelColor=78595D)
 
+  ![image](https://github.com/user-attachments/assets/2918808b-d1ef-4d19-9704-b5105af77d9c)
+  
 $$\textcolor{#D0A9BA}{pawn\ /\ gourdy}\ :\ \textcolor{#C0B5C9}{she/him}\ \textcolor{#A8C1D2}{any\ pronouns}\ .$$
 $$\textcolor{#D8A9B8}{c+h}\ \textcolor{#C9B0C2}{hvy}\ \textcolor{#B9B8CC}{enc}\ ,\ \textcolor{#A9C0D2}{int}\ \textcolor{#98C8D8}{freely}\ \textcolor{#8FB8CC}{unless}\ \textcolor{#87AEC4}{name}\ \textcolor{#7FA8BE}{says}\ \textcolor{#78A3BA}{otherwise}\ .$$
 
