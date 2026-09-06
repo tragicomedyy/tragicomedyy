@@ -10,8 +10,9 @@
     
   ![gif](https://github.com/user-attachments/assets/8409545a-acad-47a7-9441-3c627de86030)
   
-$$\textcolor{#D0A9BA}{pawn\ /\ gourdy}\ :\ \textcolor{#C0B5C9}{she/him}\ \textcolor{#A8C1D2}{any\ pronouns}\ .$$
-$$\textcolor{#D8A9B8}{c+h}\ \textcolor{#C9B0C2}{hvy}\ \textcolor{#B9B8CC}{enc}\ ,\ \textcolor{#A9C0D2}{int}\ \textcolor{#98C8D8}{freely}\ \textcolor{#8FB8CC}{unless}\ \textcolor{#87AEC4}{name}\ \textcolor{#7FA8BE}{says}\ \textcolor{#78A3BA}{otherwise}\ .$$
+$$\textcolor{#66563F}{pawn\ /\ gourdy}\ :\ \textcolor{#6F7048}{she/him}\ \textcolor{#747951}{any\ pronouns}\ .$$
+$$\textcolor{#80683B}{c+h}\ \textcolor{#896D38}{hvy}\ \textcolor{#92743A}{enc}\ ,\ \textcolor{#9A7A3D}{int}\ \textcolor{#A17F42}{freely}\ \textcolor{#A88648}{unless}\ \textcolor{#AE8B4D}{name}\ \textcolor{#B39152}{says}\ \textcolor{#B89657}{otherwise}\ .$$
+
 
 <div align="center">
   
