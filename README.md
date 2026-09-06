@@ -10,6 +10,8 @@
 $$\textcolor{#D0A9BA}{pawn\ /\ gourdy}\ :\ \textcolor{#C0B5C9}{she/him}\ \textcolor{#A8C1D2}{any\ pronouns}\ .$$
 $$\textcolor{#D8A9B8}{c+h}\ \textcolor{#C9B0C2}{hvy}\ \textcolor{#B9B8CC}{enc}\ ,\ \textcolor{#A9C0D2}{int}\ \textcolor{#98C8D8}{freely}\ \textcolor{#8FB8CC}{unless}\ \textcolor{#87AEC4}{name}\ \textcolor{#7FA8BE}{says}\ \textcolor{#78A3BA}{otherwise}\ .$$
 
+<div align="center">
+  
 ![gif1](https://github.com/user-attachments/assets/121283d8-f4a4-4a41-8745-cd115f7552a4)![gif2](https://github.com/user-attachments/assets/cc56bc7d-9805-4ed3-8aea-68baf975275d)![gif3](https://github.com/user-attachments/assets/18b43a33-242f-4bf5-804a-bdef957c6e54)![image](https://github.com/user-attachments/assets/55f8bed9-9dc4-48c8-b3fd-4c7470afdbfd)![gif](https://github.com/user-attachments/assets/2b22b61e-9b97-4f52-84e9-764d6bcc12d3)![gif](https://github.com/user-attachments/assets/709b472a-4ab7-45b7-a410-966e3f9bed80)![Image](https://github.com/user-attachments/assets/731a92a6-362d-4911-a5dc-1a830e640b83)![image](https://github.com/user-attachments/assets/354a3693-7468-469d-8414-b334878fe948)![image](https://github.com/user-attachments/assets/ee09aeb1-3a88-4859-9291-476ccb18057f)
 
 
